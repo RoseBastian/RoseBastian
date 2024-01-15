@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **rosebastianrb@gmail.com**
 
-- ⚡ Fun fact **I have a superpower – I can turn serious situations into moments of laughter! Whether it's a tense meeting or a stressful deadline, I have a knack for injecting humor and light-heartedness to bring a smile to everyone's face. Laughter truly is the best medicine, even in the world of coding and problem-solving! 😄🚀**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
